@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @PP150207.
+- 💻 Hi, I'm Copy & Paste Enginner.
+- 👀 I majored in Phamacy in University.
